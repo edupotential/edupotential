@@ -1,1 +1,1 @@
-# edupotential.ca
+# edupotential
